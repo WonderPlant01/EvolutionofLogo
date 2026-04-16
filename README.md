@@ -1,1 +1,1 @@
-<img width="1118" height="644" alt="download" src="https://github.com/user-attachments/assets/46b83997-a96c-4bfc-b09b-0d4c451bf5ac" />
+<img width="1314" height="496" alt="animationen design abgabe" src="https://github.com/user-attachments/assets/987ec297-6bf2-41cf-bec9-6d583808d0b3" />
